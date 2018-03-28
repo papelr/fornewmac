@@ -1,1 +1,4 @@
 # fornewmac
+
+
+# what the hell
